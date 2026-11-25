@@ -80,5 +80,5 @@ in a team of 150 soldiers as well as in a messy dataset.
 
 ## 📫 Let's connect
 
-- 💼 LinkedIn: [your-profile](https://www.linkedin.com/in/your-profile)
+- 💼 LinkedIn: [Milomir Stevanović](https://www.linkedin.com/in/milomir-stevanovi%C4%87-2734752ba/)
 - ✉️ stevano1966@gmail.com
